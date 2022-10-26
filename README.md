@@ -1,0 +1,1 @@
+# 26 Ekim 2022 Çarşamba
